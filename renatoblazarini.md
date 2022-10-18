@@ -6,3 +6,8 @@ Aluno do Instituto Fedaral do Mato Groasso do Sul, Campus Nova Andradina.
 
 Formado no Ensino Fundamental 
   Cursando Ensino Médio
+
+# Contato
+
+INSTAGRAM - renatoblazarini
+WHATSAPP - (67) 984x4-4474
